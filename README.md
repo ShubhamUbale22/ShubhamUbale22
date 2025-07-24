@@ -55,8 +55,8 @@ Here are a few projects I've worked on:
 
 ## 📫 Let's Connect
 
-- 💼 [LinkedIn](https://linkedin.com/in/your-profile)  
-- 📧 Email: paygudevaishnavi9696@gmail.com  
+- 💼 [LinkedIn]https://www.linkedin.com/in/shubham-ubale-96a7582b0?utm_sourccontent=profile&utm_medium=android_app)  
+- 📧 Email: ubaleshubham724@gmail.com
 - 🌐 Portfolio: Coming Soon
 
 ---
